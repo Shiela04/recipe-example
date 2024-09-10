@@ -2,7 +2,7 @@
 
 ## How to cook adobo
 
-Ingredient lists
+List of Ingredients
 
 1. Chicken
 2. Soy sauce
