@@ -2,4 +2,4 @@
 
 How to cook adobo
 
-Get Ingredients
+Ingredients
